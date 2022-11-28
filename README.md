@@ -1,1 +1,1 @@
-- 👋 Hi, I’m @csrutvik
+- 👋 Hi, I’m Rutvik.
